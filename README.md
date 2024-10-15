@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi!
+i will be updating on this soon
+for inquries, please email me via yulay@tuta.io
 
 <!--
 **Yu14Y/Yu14Y** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
