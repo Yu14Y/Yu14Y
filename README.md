@@ -1,5 +1,5 @@
 ## Hi!
-i will be updating on this soon
+Figures that cool devs have this now, so i added it :3 
 for inquries, please email me via yulay@tuta.io
 
 <!--
