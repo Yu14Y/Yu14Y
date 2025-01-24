@@ -1,6 +1,6 @@
 ## Hi!
 Figures that cool devs have this now, so i added it :3 
-for inquries, please email me via mail@yu14.xyz
+for inquries, please email me via yula@tuta.io
 
 Or, Contact me https://yu14.xyz/contact.html
 
